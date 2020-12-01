@@ -1,2 +1,0 @@
-# labor-union
-labor-union
